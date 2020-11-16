@@ -22,4 +22,4 @@ Enjoy!!
 
 
 oh and dont try to decompile or crack it cuz u wont u can try
-if you succeed i will eat you out lol :)
+if you succeed i will give you a smooche :)
